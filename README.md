@@ -1,5 +1,5 @@
 # History-Detective
-Teaching our real history and somwhow making it entertaining
+Teaching our real history and somehow making it entertaining
 
 Challenging white "supremacy" and brainwashing
 
