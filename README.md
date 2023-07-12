@@ -3,6 +3,11 @@ Teaching our real history and somehow making it entertaining
 
 Challenging white "supremacy" and brainwashing
 
+White hate and violence
+
+![image](https://github.com/historyJen/History-Detective/assets/136774052/ed7749af-d2e4-4515-a7c6-5788abe92507)
+
+
 This is what passed for "science" for hundreds of years
 
 ![image](https://github.com/historyJen/History-Detective/assets/136774052/01faaa34-6709-4c8d-92ee-f31724e942ec) ![image](https://github.com/historyJen/History-Detective/assets/136774052/7ac6b5d8-fba8-4216-be8a-3134c06b3f10)
