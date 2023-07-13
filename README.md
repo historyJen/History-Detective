@@ -1,4 +1,5 @@
-# History-Detective
+# We MUST do better!
+
 Teaching our real history and somehow making it entertaining
 
 Challenging white "supremacy" and brainwashing
