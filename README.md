@@ -1,5 +1,8 @@
 # We MUST do better!
 
+![image](https://github.com/historyJen/History-Detective/assets/136774052/61369084-841d-4e06-b51f-eabefb1a028c)
+
+
 Teaching our real history and somehow making it entertaining
 
 Challenging white "supremacy" and brainwashing
