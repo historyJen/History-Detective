@@ -9,6 +9,10 @@ Challenging white "supremacy" and brainwashing
 
 White hate and violence
 
+![image](https://github.com/historyJen/History-Detective/assets/136774052/37920fce-abcf-460f-a73a-874f88917f16)
+
+
+
 ![image](https://github.com/historyJen/History-Detective/assets/136774052/ed7749af-d2e4-4515-a7c6-5788abe92507)
 
 
